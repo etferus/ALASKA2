@@ -1,2 +1,2 @@
-# ALASKA2
+# ALASKA2 Competition
 
